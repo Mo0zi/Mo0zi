@@ -1,4 +1,4 @@
-# Welcome to Moiz Ahmed  Repository
+# Welcome to Moiz Ahmed  Profile
 
 ## A passionate Full Stack & AI Engineer || Agentic AI Expert || Sialkot , Pakistan.
 
